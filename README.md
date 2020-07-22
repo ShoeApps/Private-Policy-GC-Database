@@ -1,8 +1,8 @@
-# Private-Policy-GC-Database
+# Private-Policy-Lukes-Apps
 
 PRIVACY POLICY
 
-7DS: Grand Cross Database
+Lukes Apps
 Last updated 8th June 2020
 
 We respect the privacy of our users. This Privacy Policy explains how we collect, use, disclose, and safeguard your information when you visit our mobile application.   Please read this Privacy Policy carefully.  IF YOU DO NOT AGREE WITH THE TERMS OF THIS PRIVACY POLICY, PLEASE DO NOT ACCESS THE APPLICATION. 
