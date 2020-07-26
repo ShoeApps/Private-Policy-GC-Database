@@ -94,9 +94,4 @@ We do not knowingly solicit information from or market to children under the age
 CONTACT US
 If you have questions or comments about this Privacy Policy, please contact us at:
 
-[Company Name]
-[Street Address]
-[City, State Zip]
-[Phone Number]
-[Fax Number]
-[Email]                                                                                                                               
+luke.metcalfe100799@gmail.com                                                                                                                      
